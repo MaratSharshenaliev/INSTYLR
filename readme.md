@@ -1,0 +1,5 @@
+--V - 1.0
+--MaratSharshenaliev 
+--@Shsy_01
+--+996509690790
+--HOST - gid pages
